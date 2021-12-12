@@ -1,2 +1,2 @@
 # Click here to listen ↓
-[Music Link](https://BeingLeft.github.io/BeingLeft/)
+[Music Link](https://beingleft.github.io/BeingLeft/)
